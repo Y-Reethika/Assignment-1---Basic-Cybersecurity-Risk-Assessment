@@ -1,1 +1,0 @@
-# Assignment-1---Basic-Cybersecurity-Risk-Assessment
